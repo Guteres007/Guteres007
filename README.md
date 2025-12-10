@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working for Futured.app<br>
+🔭 I’m currently working for smartsupp.com<br>
 🌱 I’m currently working on hobby project: Community of owners of residential units <br>
 
 
